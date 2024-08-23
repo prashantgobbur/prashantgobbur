@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @prashantgobbur
-- 🌱 I’m currently learning Engineering
+- 🌱 I’m currently working
 - 💞️ I’m looking to collaborate
 - 📫 How to reach me instagram @prashantgobbur
 
